@@ -1,0 +1,5 @@
+Title: **Adam Project**
+
+Story: The Adam Project is a 2022 American science-fiction action comedy film produced by Skydance Media, Maximum Effort, and 21 Laps Entertainment for the Netflix streaming service. It was directed by Shawn Levy from a screenplay written by Jonathan Tropper, T.S. Nowlin, Jennifer Flackett and Mark Levin. The movie stars Ryan Reynolds, Walker Scobell, Addison Tusing, Mark Ruffalo, Jennifer Garner, Catherine Keener and Zoe Saldaña.
+
+Production on the film first began in 2012 with Tom Cruise attached to star. The film then fell into development hell until Netflix acquired the distribution rights. Filming commenced in November 2020 and wrapped in March 2021. The Adam Project began a limited "one night only" theatrical release on March 9, 2022 followed by its digital release on Netflix on March 11. The film received mixed reviews with praise for the performances, action sequences, visual effects, and its inspiration from movies of the 1980s, as well as criticism for the writing and storyline.
